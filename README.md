@@ -11,3 +11,4 @@ Group project where we deciphered the loan prediction model using borrower profi
 <a href='https://doc-0g-bo-docs.googleusercontent.com/docs/securesc/gc5gc3rpk396vi4r4589b45p3igl5sa2/jr0864nlscc9q9kgm8hqs479smi6gofd/1612521000000/15359376423628107819/15359376423628107819/1rTDF0z18xOx9H5IS_zUuOPnf9GX-hLdc?e=download&authuser=0'>First interview(maureem wacuka SMEP Branch Manager)link</a>
 
 <a href='https://doc-08-b0-docs.googleusercontent.com/docs/securesc/gc5gc3rpk396vi4r4589b45p3igl5sa2/3ld6pa5vp32l60kbv0qmkr8necncb342/1612521225000/13852864944882183031/15359376423628107819/1-MsyzZiql-uZIAbKt-5uw0wPkOeZCZ0Z?e=download&authuser=0'>Second interview(George systems and contract Senior Auditor)link</a>
+https://docs.google.com/document/d/1Qnvcx6HDZ_kBRmFWkxszyabUvYT4FasFhXhYp7bQI7s/edit?usp=sharing Interview Questionnaire
